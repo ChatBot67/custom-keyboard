@@ -32,4 +32,9 @@ the biggest strrugglee i faced in day 1 was connecting wire as it wont connect i
 Today i will be doiin the rgb yeahhhh progresss
 <img width="1332" height="483" alt="image" src="https://github.com/user-attachments/assets/9cda7a57-c446-46bf-af57-e4048ebdf59a" />
 damn first half done 
-
+Hell yeahh i finnally feeel some progess my 2nd day's hardest challenge was connecting the wires as some were misaligned .
+My part2 timrlapse : https://lapse.hackclub.com/timelapse/8E3A1pW5wHUZ
+<img width="1401" height="867" alt="image" src="https://github.com/user-attachments/assets/9d8afeea-14ab-410c-87c8-31a09d268b7b" />
+day 3 did the connections , annoted the parts now for the pcbb
+<img width="1392" height="935" alt="image" src="https://github.com/user-attachments/assets/eead183b-c759-4564-836d-dc4dcd4c4614" />
+finallly ALLL DONEE NOW PCBBB
