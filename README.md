@@ -61,3 +61,4 @@ soo ummm i forgot to save my repost again and my progress is again losttt
 btw i am posting my timelaspes in lapse so u can watch the videos there currently i am splitting the keyboard
 <img width="1262" height="507" alt="image" src="https://github.com/user-attachments/assets/72de355c-d80c-4c4d-bfbc-0adb594048c1" />
 yooooo finallly my 3d model donee tmrww imma fininshh the firmware and submittt
+Yepp submitting now firmware doneee
